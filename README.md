@@ -2,7 +2,7 @@
 
 If you're a Fortnite player looking to unlock awesome free content like V-Bucks, exclusive emotes, and cool character outfits, you've come to the right place. This October, Fortnite fans can claim free codes to boost their experience. Whether you’re a casual player or aiming to win those Victory Royales, these free rewards are the perfect way to enhance your game without spending a dime. Read on to discover how you can redeem free codes, the latest in Fortnite’s world, and how these free rewards can transform your gameplay.
 
-[✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ### What are Fortnite Free Codes?
 
